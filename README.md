@@ -9,7 +9,7 @@ me tornarei uma desenvolvedora Web 💙💻<hr/>
 
 💼 Meu atual trabalho é a gerencia do suporte na empresa **Fácil Sistemas - Diamantina**<br>
 ⏭️Meu atual trabalho voluntário é Presidência da Next Step - Empresa Júnior - UFVJM. <br>
-📈 Meus maiores interesses atualmente é me dedicar a Banco de dados e JavaScript<br>
+📈 Meus maiores interesses atualmente são: me dedicar a Banco de dados e JavaScript<br>
 😍 Se precisar de ajuda com banco de dados, Scrum, Engenharia de Software, posso te ajudar! <br>
 <hr/>
 💬 Curiosidades sobre mim: Sou ambidestra, amo animes e séries.<br>
