@@ -4,7 +4,7 @@
 
 Aprender algo novo e sair da zona de conforto é o que me motiva.<br>
 Sou apaixonada por tecnologia, busco sempre aprimorar meus conhecimentos e<br>
-me tornarei uma desenvolvedora Web 💙💻<hr/>
+Tenho foco em Front-end💙💻<hr/>
 
 
 💼 Atualmente sou estagiária em desenvolvimento de software na DTI Digital <br>
